@@ -1,2 +1,2 @@
 # zoeender.github.io
-personal portfolio
+Digital Media and Design major at the University of Connecticut
